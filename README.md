@@ -1,3 +1,3 @@
 <!-- skibidi -->
-![Image](https://github.com/user-attachments/assets/6711feaf-1b33-4522-ad11-399ce33ace55)
+![Image](https://github.com/user-attachments/assets/0b963d9f-98ca-47ab-84d6-c4fa058adc99)
 <!-- end -->
