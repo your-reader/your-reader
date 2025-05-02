@@ -1,5 +1,4 @@
 <!-- skibidi -->
 <p align = "center">
   
-![Image](https://github.com/user-attachments/assets/c3f5f7f1-e00c-45ea-9673-1eb06654654b)
-<!-- end -->
+![Image](https://github.com/user-attachments/assets/e91450f2-4a2f-4e2a-855c-b30c3cf460f0)<!-- end -->
