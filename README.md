@@ -1,4 +1,6 @@
 <!-- skibidi -->
 <p align = "center">
-  
-![Image](https://github.com/user-attachments/assets/1e0becc7-1b6d-45a3-a8cd-7688ede8cfe2)
+ 
+bugs when you lift up a fucking rock
+ 
+![Image](https://github.com/user-attachments/assets/8f05757f-7674-4e87-a8d8-192655004b2b)
