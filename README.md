@@ -1,4 +1,4 @@
 <!-- skibidi -->
-<p align = "center">
+<div align = "center">
   
-![Image](https://github.com/user-attachments/assets/78c1721a-cc73-4a01-95d6-ee6486397f38)
+![Image](https://github.com/user-attachments/assets/66759107-95ac-4fb6-a9f2-104eb9f64634)
