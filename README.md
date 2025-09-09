@@ -1,6 +1,6 @@
 <!-- skibidi -->
 <div align = "center">
 
-We can explore each other -renjith 
+them
   
-![Image](https://github.com/user-attachments/assets/66759107-95ac-4fb6-a9f2-104eb9f64634)
+![Image](https://github.com/user-attachments/assets/fc88bf5e-fd18-4c74-88f3-347a38a600fb)
