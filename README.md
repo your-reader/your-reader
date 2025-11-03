@@ -1,6 +1,8 @@
 <!-- skibidi -->
 <div align = "center">
 
-them
+OH MA GAH
   
-![Image](https://github.com/user-attachments/assets/fc88bf5e-fd18-4c74-88f3-347a38a600fb)
+![Image](https://github.com/user-attachments/assets/2dc37c2f-fdc7-42f4-a722-311f4ea56d15)
+
+[Pet club](https://www.youtube.com/watch?v=K-RaR-YDZIE)
